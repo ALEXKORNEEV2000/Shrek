@@ -42,6 +42,14 @@
 * Склеили фигуру 
 
 
+### Итоговое видео процесса 
+
+
+
+https://github.com/ALEXKORNEEV2000/Shrek/assets/85906021/eb1e4ed9-ab13-4096-a38a-9782d43b4183
+
+
+
 
 
 
